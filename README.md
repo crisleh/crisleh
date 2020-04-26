@@ -1,3 +1,0 @@
-# Cristiane Lehmkuhl
-
-Hello, world!
